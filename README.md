@@ -31,4 +31,4 @@ Data & Reporting
 Fun Facts:
 - i dont like coffee, matcha always be my first option
 - Cat Person
-- Dark Chocolate will always my solution whenever i burned outt!
+- Dark Chocolate had always be my solution whenever i burned outt!
